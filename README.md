@@ -1,4 +1,5 @@
 ### Hi there 👋
+  Graduate From NIT Jalandhar!!!!!!
 
 
 
